@@ -5,7 +5,7 @@
 ✘ https://appllees.carrd.co 
 
 
-✘ c + h, sometimes w2i if im in menu.
+✘ c + h. sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me i really like talking to people !!
 
 -══════════════════════════════════════
 
