@@ -9,7 +9,8 @@
 
 -══════════════════════════════════════
 
-![2E131F2A-4184-409E-92B5-5D154D9B53F4](https://github.com/user-attachments/assets/c26ae0f9-8ad3-4d0a-b9fe-6389a486bb11)
+<img width="1108" height="893" alt="IMG_8707" src="https://github.com/user-attachments/assets/5277912f-16f5-4282-beb6-ea97f173b964" />
+
 
 ═══════════════════════════════════════
 
