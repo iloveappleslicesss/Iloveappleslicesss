@@ -9,7 +9,7 @@
 
 -══════════════════════════════════════
 
-<img width="1108" height="893" alt="IMG_8707" src="https://github.com/user-attachments/assets/5277912f-16f5-4282-beb6-ea97f173b964" />
+<img width="600" height="240" alt="E0057D0F-417D-417F-A62F-78717598083E" src="https://github.com/user-attachments/assets/0e9c7bc7-44c9-4f64-bb1d-fa889deeff91" />
 
 
 ═══════════════════════════════════════
