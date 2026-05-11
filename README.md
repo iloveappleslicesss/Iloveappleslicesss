@@ -8,7 +8,7 @@
 
 ✘ basic DNI
 
-✘ (https://appllee.carrd.co)
+✘ https://appllee.carrd.co
 
 ✘ https://applessss.straw.page
 
