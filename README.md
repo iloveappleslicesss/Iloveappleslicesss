@@ -15,7 +15,7 @@
 
 ‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹
 
-<img width="600" height="240" alt="E0057D0F-417D-417F-A62F-78717598083E" src="https://github.com/user-attachments/assets/0e9c7bc7-44c9-4f64-bb1d-fa889deeff91" />
+<img width="1200" height="900" alt="IMG_9711" src="https://github.com/user-attachments/assets/ef94eb86-7837-47ea-a05b-6ebdb5231943" />
 
 
 ‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹
