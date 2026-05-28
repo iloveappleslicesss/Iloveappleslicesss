@@ -4,13 +4,13 @@
 
 
 
-✘ c + h. sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me i really like talking to people !!
+✘ c + h. sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me !! 
+⤷ usually with friends, if im by myself im less likely to be ontab
 
 ✘ basic DNI
 
 ✘ https://appllee.carrd.co
 
-✘ https://applessss.straw.page
 
 
 ‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹
