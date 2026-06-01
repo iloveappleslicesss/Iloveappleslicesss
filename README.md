@@ -10,7 +10,7 @@
 
 -✘ **basic DNI**
 
--✘ ** [carrd](https://appllee.carrd.co)**
+-✘ **[carrd](https://appllee.carrd.co)**
 
 
 
