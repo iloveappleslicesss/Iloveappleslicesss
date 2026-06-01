@@ -1,12 +1,12 @@
 -✘ ${\color{red}hello \space !}$
 
-‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹
+*‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹*
 
 
 
--✘ **c + h. sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me !!**
+-✘ *c + h. sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me !!*
 
-⤷ **usually with friends, if im by myself im less likely to be ontab**
+⤷ *usually with friends, if im by myself im less likely to be ontab*
 
 -✘ ${\color{red}basic \space  DNI}$
 
@@ -14,7 +14,7 @@
 
 
 
-‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹
+*‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹*
 
 <img width="1200" height="900" alt="IMG_9711" src="https://github.com/user-attachments/assets/ef94eb86-7837-47ea-a05b-6ebdb5231943" />
 
