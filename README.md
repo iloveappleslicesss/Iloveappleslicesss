@@ -1,4 +1,4 @@
--✘ **`#af2d2d hello !`**
+-✘ ** hello !**
 
 ‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹
 
@@ -10,7 +10,7 @@
 
 -✘ **basic DNI**
 
--✘ **`#af2d2d [carrd](https://appllee.carrd.co)`**
+-✘ ** [carrd](https://appllee.carrd.co)**
 
 
 
