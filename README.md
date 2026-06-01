@@ -21,7 +21,7 @@
 
 ‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹
 
-https://pfq.link/Iloveappleslices
+[pokefarm](https://pfq.link/Iloveappleslices)
 
 <!--
 **iloveappleslicesss/Iloveappleslicesss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
