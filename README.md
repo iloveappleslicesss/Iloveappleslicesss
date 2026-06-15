@@ -1,4 +1,4 @@
--✘ ${\color{red}hello \space !}$
+-✘ ${\color{yellow}hello \space !}$
 
 *‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹*
 
@@ -8,7 +8,7 @@
 
 ⤷ *usually with friends, if im by myself im less likely to be ontab*
 
--✘ ${\color{red}basic \space  DNI}$
+-✘ ${\color{yellow}basic \space  DNI}$
 
 -✘ [carrd](https://appllee.carrd.co)
 
