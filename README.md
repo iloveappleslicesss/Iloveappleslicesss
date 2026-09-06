@@ -10,7 +10,7 @@
 
 -✘ ${\color{blue}basic \space  DNI}$
 
--✘ [carrd](https://appllee.carrd.co)  
+-✘ [carrd](https://apppleees.carrd.co)  
 
 
 
