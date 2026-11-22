@@ -8,11 +8,11 @@
 
 ⸝⸝ ⸝⸝ ⸝⸝ ⸝⸝ ⸝⸝ ⸝⸝ ⸝⸝
   
-  $\Small\textcolor{#FF0000}{\text{⤷ *usually with friends, if im by myself im less likely to be ontab}}$
+  $\small\textcolor{#FF0000}{\text{⤷ *usually with friends, if im by myself im less likely to be ontab}}$
 
 ⸝⸝ ⸝⸝ ⸝⸝ ⸝⸝ ⸝⸝ ⸝⸝ ⸝⸝
 
-$\Small\textcolor{#FF0000}{\text{-✘ basic dni}}$
+$\small\textcolor{#FF0000}{\text{-✘ basic dni}}$
 
 
 [carrd](https://apppleees.carrd.co) 
