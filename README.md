@@ -5,6 +5,8 @@ $\small\textcolor{#FF0000}{\text{-✘  c + h  always.   sometimes w2i if im in m
 
 
 <div align="center">
+
+⸝⸝ ⸝⸝ ⸝⸝ ⸝⸝ ⸝⸝ ⸝⸝ ⸝⸝
   
   $\Small\textcolor{#FF0000}{\text{⤷ *usually with friends, if im by myself im less likely to be ontab}}$
 
