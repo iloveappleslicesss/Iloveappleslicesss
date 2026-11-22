@@ -1,5 +1,3 @@
--✘ ${\color{blue}hello \space !}$
-
 *‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹*
 
 
@@ -8,7 +6,7 @@
 
 ⤷ *usually with friends, if im by myself im less likely to be ontab*
 
--✘ ${\color{blue}basic \space  DNI}$
+-✘ ${\color{red}basic \space  DNI}$
 
 -✘ [carrd](https://apppleees.carrd.co)  
 
@@ -16,7 +14,9 @@
 
 *‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹*
 
-<img width="1200" height="899" alt="C23B74A5-F622-4AAE-88A9-8E42BBCDE84A" src="https://github.com/user-attachments/assets/2c8b6f90-8f01-4c89-89b4-067dd81ebc72" />
+<img width="760" height="340" alt="8E288BEB-FF67-408D-A5ED-DECC05EF1FAF" src="https://github.com/user-attachments/assets/c808d858-4781-43a5-bacd-eb0493f661e0" />
+
+
 
 
 
