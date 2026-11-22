@@ -13,7 +13,7 @@ $\Small\textcolor{#FF0000}{\text{-✘ basic dni}}$
 
 [carrd](https://apppleees.carrd.co) 
 
-<a href="https://apppleees.carrd.co” style=“color: white; text-decoration: underline;text—decoration: dotted;">carrd</a>
+<a href="https://apppleees.carrd.co” style=“color: #FFFFFF; text-decoration: underline;text—decoration: dotted;">carrd</a>
 
 *‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹*
 
