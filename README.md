@@ -13,7 +13,7 @@ $\Small\textcolor{#FF0000}{\text{-✘ basic dni}}$
 
 [carrd](https://apppleees.carrd.co) 
 
-<a href="https://apppleees.carrd.co”><img src="https://img.sheilds.io.badge/carrd-white?style=social" /></a>
+<a href="https://apppleees.carrd.co"><img src="https://img.sheilds.io.badge/carrd-white?style=social" /></a>
 
 
 
