@@ -1,4 +1,4 @@
-*‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹*
+⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･
 
 
 $\small\textcolor{#FF0000}{\text{-✘  c + h  always.   sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me !!*}}$
@@ -15,12 +15,7 @@ $\Small\textcolor{#FF0000}{\text{-✘ basic dni}}$
 
 [carrd](https://apppleees.carrd.co) 
 
-</div>
-
-
-
-
-*‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹*
+</⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ 
 
 <img width="760" height="340" alt="8E288BEB-FF67-408D-A5ED-DECC05EF1FAF" src="https://github.com/user-attachments/assets/c808d858-4781-43a5-bacd-eb0493f661e0" />
 
