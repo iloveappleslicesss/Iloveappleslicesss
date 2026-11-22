@@ -3,6 +3,7 @@
 
 $\small\textcolor{#FF0000}{\text{-✘  c + h  always.   sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me !!*}}$
 
+<div align="center">
 $\Small\textcolor{#FF0000}{\text{⤷ *usually with friends, if im by myself im less likely to be ontab}}$
 
 $\Small\textcolor{#FF0000}{\text{⤷ usually with friends, if im by myself im less likely to be ontab}}$
@@ -12,8 +13,8 @@ $\Small\textcolor{#FF0000}{\text{-✘ basic dni}}$
 
 
 [carrd](https://apppleees.carrd.co) 
+</div>
 
-<a href="https://apppleees.carrd.co"><span style="color: #FFFFFF; ">carrd</span></a>
 
 
 
