@@ -11,10 +11,9 @@ $\Small\textcolor{#FF0000}{\text{⤷ usually with friends, if im by myself im le
 $\Small\textcolor{#FF0000}{\text{-✘ basic dni}}$
 
 
-$\small\textcolor{#FFFFFF}{{-✘ [carrd](https://apppleees.carrd.co)  
-}}$
+[carrd](https://apppleees.carrd.co) 
 
-
+<a href="https://apppleees.carrd.co” style=“color: white; text-decoration: underline;text—decoration: dotted;">custom link</carrd>
 
 *‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹*
 
