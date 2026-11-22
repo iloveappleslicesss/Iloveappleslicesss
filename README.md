@@ -2,7 +2,7 @@
 
 <div align="center">
 
-## **$\small\textcolor{#FF0000}{\text{-✘  c + h  always.   sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me !!}}$**
+**$\small\textcolor{#FF0000}{\text{-✘  c + h  always.   sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me !!}}$**
 
 
 
