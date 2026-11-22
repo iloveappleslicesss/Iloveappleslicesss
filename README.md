@@ -1,7 +1,7 @@
 *‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹*
 
 
-$\Large\textcolor{#FF0000}{{-✘ c + h always. sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me !!*}}$
+$\Large\textcolor{#FF0000}{{-✘ /space c + h /space always. /space  sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me !!*}}$
 
 $\large\textcolor{#FF0000}{{⤷ *usually with friends, if im by myself im less likely to be ontab}}$
 
