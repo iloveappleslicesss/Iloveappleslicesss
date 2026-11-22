@@ -1,14 +1,17 @@
 *‧˚₊꒷꒦︶︶︶꒷꒦︶︶︶꒦꒷‧₊˚⊹*
 
 
+$\Large\textcolor{#FF0000}{{-✘ c + h always. sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me !!*}}$
 
--✘ *c + h always. sometimes w2i if im in menu. if i dont reply im probably afk or offtab. pls int with me !!*
+$\large\textcolor{#FF0000}{{⤷ *usually with friends, if im by myself im less likely to be ontab}}$
 
-⤷ *usually with friends, if im by myself im less likely to be ontab*
+$\small\textcolor{#FF0000}{{⤷ usually with friends, if im by myself im less likely to be ontab}}$
 
--✘ ${\color{white}basic \space  DNI}$
 
--✘ [carrd](https://apppleees.carrd.co)  
+$\small\textcolor{#FF0000}{{-✘ basic \space  DNI}}}$
+
+$\small\textcolor{#FFFFFF}{{-✘ [carrd](https://apppleees.carrd.co)  
+}}$
 
 
 
