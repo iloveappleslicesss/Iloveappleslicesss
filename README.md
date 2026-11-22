@@ -6,7 +6,7 @@
 
 ⤷ *usually with friends, if im by myself im less likely to be ontab*
 
--✘ ${\color{red}basic \space  DNI}$
+-✘ ${\color{white}basic \space  DNI}$
 
 -✘ [carrd](https://apppleees.carrd.co)  
 
