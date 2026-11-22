@@ -5,7 +5,7 @@ $\Large\textcolor{#FF0000}{\text{-✘  c + h  always.   sometimes w2i if im in m
 
 $\large\textcolor{#FF0000}{\text{⤷ *usually with friends, if im by myself im less likely to be ontab}}$
 
-$\small\textcolor{#FF0000}{/text{⤷ usually with friends, if im by myself im less likely to be ontab}}$
+$\small\textcolor{#FF0000}{\text{⤷ usually with friends, if im by myself im less likely to be ontab}}$
 
 
 $\small\textcolor{#FF0000}{\text{-✘ basic \space  DNI}}}$
